@@ -8,7 +8,9 @@
 
 Estou em busca de conhecer mais o mundo de engenharia e ciência de dados <3.
 
- <a href="https://www.linkedin.com/in/alinetsbarreto/"><img src="https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white" height="15px"></a>
+
+__________________________________________________________________________________________________________________________________________________
+ <a href="https://www.linkedin.com/in/alinetsbarreto/"><img src="https://img.shields.io/badge/LinkedIn-0077B5?style=for-the-badge&logo=linkedin&logoColor=white" height="30 px"></a>
 
 
 
