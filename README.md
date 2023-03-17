@@ -4,9 +4,9 @@
 
 - Sou graduada em Nanotecnologia 
 - Mestranda em Nanobiossistemas - UFRJ 
-- Apaixonada por tecnologia e adquirir conhecimento ❤
+- Apaixonada por tecnologia e adquirir conhecimento 
 
-Estou em busca de conhecer mais o mundo de engenharia e ciência de dados <3.
+Estou em busca de conhecer mais o mundo de engenharia e ciência de dados ❤
 
 
 __________________________________________________________________________________________________________________________________________________
