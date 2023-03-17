@@ -6,7 +6,7 @@
 - Mestranda em Nanobiossistemas - UFRJ 
 - Apaixonada por tecnologia e adquirir conhecimento 
 
-Estou em busca de conhecer mais o mundo de engenharia e ciência de dados ❤
+Em busca de conhecer mais o mundo de engenharia e ciência de dados ❤
 
 
 __________________________________________________________________________________________________________________________________________________
