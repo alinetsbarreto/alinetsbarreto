@@ -2,8 +2,7 @@
 
 
 
-- Sou graduada em Nanotecnologia 
-- Mestranda em Nanobiossistemas - UFRJ 
+- Sou graduada em Nanotecnologia e mestra em Nanobiossistemas - UFRJ 
 - Apaixonada por tecnologia e adquirir conhecimento 
 
 Em busca de conhecer mais o mundo de engenharia e ciência de dados ❤
